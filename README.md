@@ -4,4 +4,4 @@
 ✨ 16,000ish hours in High-Fantasy Story Creation
 
 ### Applications Published by Me 
-🔑 Marshal Saga - [a link](https://play.google.com/store/apps/details?id=com.RedArcana.MarshalSaga)
+🔑 Marshal Saga - [Playstore Link](https://play.google.com/store/apps/details?id=com.RedArcana.MarshalSaga)
